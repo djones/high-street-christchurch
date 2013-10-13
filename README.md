@@ -10,5 +10,5 @@ Photos were taken from the rooftop of the (now) C1 Coffee building corner of Hig
 
 Thanks to the [Matrx](http://www.matrx.co.nz) and [C1 Coffee](http://www.c1espresso.co.nz) for allowing me up on the rooftop to take and retake this photo.
 
-[Original photo on Flickr](http://www.flickr.com/photos/davidgjones/3301665636/)
+[Original photo on Flickr](http://www.flickr.com/photos/davidgjones/3301665636/).
 Photography by David Jones. All rights reserved.
